@@ -1,2 +1,1 @@
 # flyinghumanity-madarathelegend
-помогаю максику
